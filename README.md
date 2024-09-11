@@ -1,7 +1,7 @@
 # 𝐕𝐄𝐍𝐎𝐌_𝐌𝐃
-
- 
-
+# SHAMMELODY _MD
+ # ONES MD
+# CLAROO _MD📱🫵
 <p align="center">  
   <a href="https://whatsapp.com/channel/0029Vagq4pN9hXEy6SpCDi0X">
     <img alt="wasi" height="300" src="https://telegra.ph/file/478c2641e9bcf0ecfd139.jpg">
@@ -48,7 +48,7 @@
 # <a href="https://wasimd-9dedcea2edba.herokuapp.com/"><img title="koyeb" src="https://img.shields.io/badge/DEPLOY ON KYOEB-h?color=green&style=for-the-badge&logo=msi"></a>
 
 
-### 𝕋ℍ𝔸ℕ𝕂𝕊 𝕋𝕆 〄༒𝐇𝐀𝐌𝐌𝐘➳ᴹᴿ᭄
+### 𝕋ℍ𝔸ℕ𝕂𝕊 𝕋𝕆 〄༒SHAMMELODY➳ᴹᴿ᭄
 
 
 
